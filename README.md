@@ -1,0 +1,1 @@
+# valtozocsere_seged_nelkul
